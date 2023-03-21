@@ -3,7 +3,6 @@
 - 🌱 AMO A NATUREZA ...
 - :sleeping:Estudar DEMAISS não e meu forte ...
 - :star_struck:Aluno do CCM
-- :stuck_out_tongue_winking_eye:Adoro Jogar meus joguinhos com a best @GabizinhaCCM
 
 
 
